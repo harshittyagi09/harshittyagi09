@@ -17,7 +17,7 @@
 
 👥 Let's Connect:
 - 📧 Email: tyagiharshit85@gmail.com
-- 💼 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/harshit-tyagi-315429297/)
+- 💼 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/harshit-tyagi-04b37021a/)
 
 🚀 Open to Collaboration:
 - 🤝 Let's collaborate on exciting projects and create amazing software together.
